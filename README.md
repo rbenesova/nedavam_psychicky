@@ -1,0 +1,1 @@
+# nedavam_psychicky
